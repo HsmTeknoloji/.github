@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Hsm Teknoloji A.Ş.
+Hsm Teknoloji LLC
 
 www.hsmteknoloji.com
 
